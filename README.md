@@ -1,3 +1,4 @@
 # PoemTrial
- 
-There was hope
+
+There was hope among extremists
+
