@@ -1,3 +1,3 @@
 # PoemTrial
  
-There was famine
+There was hope among the starving children
